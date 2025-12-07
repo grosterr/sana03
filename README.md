@@ -1,1 +1,1 @@
-Гарбар Дмитро Олександрович dima2007qarbar@gmail.com
+Гарбар Дмитро Олександрович ipz252_gdo@student.ztu.edu.ua
